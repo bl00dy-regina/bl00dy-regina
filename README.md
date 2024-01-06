@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @bl00dy-regina
 - 👀 I’m interested in basic coding and cyber security.
+- IT professional in content management.
 - 🌱 I’m currently learning many things.
 - 💞
 - 📫 How to reach me ... https://www.linkedin.com/in/john-cline-9281457/
